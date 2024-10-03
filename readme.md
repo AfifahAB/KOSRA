@@ -59,5 +59,5 @@ Let's collaborate to enhance HOTEL-KOSRA and create an even more exceptional use
 
 ## Contact Information
 
-For inquiries, feedback, or collaboration opportunities, please contact [Kavya Singh](https://www.linkedin.com/in/kavya-singh-690888292/).
+For inquiries, feedback, or collaboration opportunities, please contact [Afifah](https://www.linkedin.com/in/afifah-ayesha-bijli-07ba4924b/).
 
